@@ -1,1 +1,1 @@
-Morgan Stanley & Tech:NYC Summer 2021 Internship
+Morgan Stanley & Tech:NYC 2021 Summer Internship
